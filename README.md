@@ -35,560 +35,126 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-Little Timothe his lesson: or, A summary relation of the historicall part of holy scripture plainely
+
+1. TO THE WORSHIPFVLL, and other the Officers of the Hoſpitall of St. Bartholmew, Mr. Iohn Browne Maior of the City of Gloceſter, and Preſident of the Houſe: Mr. Laurence Wilſhire Alderman and Surueiour, Mr. John Thorne, Alderman and Treaſurer, Mr. Richard Smith, Sheriffe and Surueiour, Mr. William Lockſmith, and Mr. Iohn Moore, Almoners, Mr. Iohn Bruſter and Mr. Antony Robinſon Scrutaners, or Viſiters of the poore.
+
+1. TO THE RIGHT VVorſhipfull Sir William Throckmorton, Knight; and to the Lady Cecilie his vertuous and beloued wife, E▪ G. wiſheth continuance and increaſe of all heauenly and earthly happineſſe, to their perpetuall comfort.
+
+1. Vpon the Authors Worke.
+
+1. In Momum.
+
+1. The Author to the curious Reader.
+
 #####Body#####
 
-1. The firſt Section.
+1. THE FIRST PART OF THE SVMME OF THE HOLIE HISTORY.
+
+    _ The firſt Section.
+
+    _ Section 2.
+
+    _ Section 3.
+
+    _ Section 4.
+
+    _ Section 5.
+
+    _ Section 6.
+
+    _ Section 7.
+
+    _ Section 8.
+
+    _ Section 9.
+
+    _ Section 10.
+
+    _ Section 11.
+
+    _ Section 12.
+
+    _ Section 13.
+
+    _ Section 14.
+
+    _ Section 15.
+
+    _ Section 16.
+
+    _ Section 17.
+
+    _ Section 18.
+
+    _ Section 19.
+
+    _ Section 20.
+
+    _ The Dukes of Dauids ſtocke, after the returne out of Captiuity.
+
+    _ The Princes and Kings of the Family of the Maccabees.
+
+    _ The poſterity of Herod.
+
+    _ A briefe ſupputation of the yeres and times, from the Creation of the World, vnto the birth of Chriſt: collected out of Iunius, according to the Scriptures.The age of the World.
+
+1. The ſecond Part.
+
+    _ The firſt Section.
+
+    _ Section 2.
+
+    _ Section 3.
+
+    _ Section 4.
 Mat. 13 AT Nazeret he tooke his textin Eſai's prophecie:Luk. 4. Whence hardly ſcaping, he did next,t
-    _ Chriſts Parables.
+      * Chriſts Parables.
 By o Light and p Leuen, q Feaſts & r Friendsby ſ Rich men, t Trees, and u Treaſure.By x Children, y 
-    _ Cap. 6. 8.
+    _ Section. 5.
 
-    _ CAP. 9. 1
+    _ Section 6.
 
-    _ CAP. 13. 11.
+    _ Section 7.
 
-    _ CAP. 17. 3.
+    _ Section 8.
 
-1. Section 2.
-Mat. 13 AT Nazeret he tooke his textin Eſai's prophecie:Luk. 4. Whence hardly ſcaping, he did next,t
-    _ Chriſts Parables.
-By o Light and p Leuen, q Feaſts & r Friendsby ſ Rich men, t Trees, and u Treaſure.By x Children, y 
-    _ Cap. 6. 8.
+    _ Section. 9.
 
-    _ CAP. 9. 1
+    _ Section 10.
 
-    _ CAP. 13. 11.
+    _ ReuelationSection 11.
 
-    _ CAP. 17. 3.
+    _ Section 12.
 
-1. Section 3.
-Mat. 13 AT Nazeret he tooke his textin Eſai's prophecie:Luk. 4. Whence hardly ſcaping, he did next,t
-    _ Chriſts Parables.
-By o Light and p Leuen, q Feaſts & r Friendsby ſ Rich men, t Trees, and u Treaſure.By x Children, y 
-    _ Cap. 6. 8.
+    _ Section 13.
 
-    _ CAP. 9. 1
+    _ Section 14.
 
-    _ CAP. 13. 11.
+1. Certaine briefe notes, collected out of late and approued writers, for the better vnderſtanding of the booke of REVELATION.
 
-    _ CAP. 17. 3.
+    _ The ſeuen Seales.
 
-1. Section 4.
-Mat. 13 AT Nazeret he tooke his textin Eſai's prophecie:Luk. 4. Whence hardly ſcaping, he did next,t
-    _ Chriſts Parables.
-By o Light and p Leuen, q Feaſts & r Friendsby ſ Rich men, t Trees, and u Treaſure.By x Children, y 
-    _ Cap. 6. 8.
+    _ The 7. Trumpets.
 
-    _ CAP. 9. 1
+    _ A Deſcription of the Church.
 
-    _ CAP. 13. 11.
+    _ A Deſcription of the Diuell.
 
-    _ CAP. 17. 3.
+    _ A deſcription of the firſt Beaſt.
 
-1. Section 5.
-Mat. 13 AT Nazeret he tooke his textin Eſai's prophecie:Luk. 4. Whence hardly ſcaping, he did next,t
-    _ Chriſts Parables.
-By o Light and p Leuen, q Feaſts & r Friendsby ſ Rich men, t Trees, and u Treaſure.By x Children, y 
-    _ Cap. 6. 8.
+    _ The Deſcription of Antichriſt, obſerued by the learned to be foure times fully and definitelie ſet downe in this Booke.
 
-    _ CAP. 9. 1
+      * Cap. 6. 8.
 
-    _ CAP. 13. 11.
+      * CAP. 9. 1
 
-    _ CAP. 17. 3.
+      * CAP. 13. 11.
 
-1. Section 6.
-Mat. 13 AT Nazeret he tooke his textin Eſai's prophecie:Luk. 4. Whence hardly ſcaping, he did next,t
-    _ Chriſts Parables.
-By o Light and p Leuen, q Feaſts & r Friendsby ſ Rich men, t Trees, and u Treaſure.By x Children, y 
-    _ Cap. 6. 8.
+      * CAP. 17. 3.
 
-    _ CAP. 9. 1
+    _ The meanes by which Antichriſt ſhall be confounded.
 
-    _ CAP. 13. 11.
-
-    _ CAP. 17. 3.
-
-1. Section 7.
-Mat. 13 AT Nazeret he tooke his textin Eſai's prophecie:Luk. 4. Whence hardly ſcaping, he did next,t
-    _ Chriſts Parables.
-By o Light and p Leuen, q Feaſts & r Friendsby ſ Rich men, t Trees, and u Treaſure.By x Children, y 
-    _ Cap. 6. 8.
-
-    _ CAP. 9. 1
-
-    _ CAP. 13. 11.
-
-    _ CAP. 17. 3.
-
-1. Section 8.
-Mat. 13 AT Nazeret he tooke his textin Eſai's prophecie:Luk. 4. Whence hardly ſcaping, he did next,t
-    _ Chriſts Parables.
-By o Light and p Leuen, q Feaſts & r Friendsby ſ Rich men, t Trees, and u Treaſure.By x Children, y 
-    _ Cap. 6. 8.
-
-    _ CAP. 9. 1
-
-    _ CAP. 13. 11.
-
-    _ CAP. 17. 3.
-
-1. Section 9.
-Mat. 13 AT Nazeret he tooke his textin Eſai's prophecie:Luk. 4. Whence hardly ſcaping, he did next,t
-    _ Chriſts Parables.
-By o Light and p Leuen, q Feaſts & r Friendsby ſ Rich men, t Trees, and u Treaſure.By x Children, y 
-    _ Cap. 6. 8.
-
-    _ CAP. 9. 1
-
-    _ CAP. 13. 11.
-
-    _ CAP. 17. 3.
-
-1. Section 10.
-Mat. 13 AT Nazeret he tooke his textin Eſai's prophecie:Luk. 4. Whence hardly ſcaping, he did next,t
-    _ Chriſts Parables.
-By o Light and p Leuen, q Feaſts & r Friendsby ſ Rich men, t Trees, and u Treaſure.By x Children, y 
-    _ Cap. 6. 8.
-
-    _ CAP. 9. 1
-
-    _ CAP. 13. 11.
-
-    _ CAP. 17. 3.
-
-1. Section 11.
-Mat. 13 AT Nazeret he tooke his textin Eſai's prophecie:Luk. 4. Whence hardly ſcaping, he did next,t
-    _ Chriſts Parables.
-By o Light and p Leuen, q Feaſts & r Friendsby ſ Rich men, t Trees, and u Treaſure.By x Children, y 
-    _ Cap. 6. 8.
-
-    _ CAP. 9. 1
-
-    _ CAP. 13. 11.
-
-    _ CAP. 17. 3.
-
-1. Section 12.
-Mat. 13 AT Nazeret he tooke his textin Eſai's prophecie:Luk. 4. Whence hardly ſcaping, he did next,t
-    _ Chriſts Parables.
-By o Light and p Leuen, q Feaſts & r Friendsby ſ Rich men, t Trees, and u Treaſure.By x Children, y 
-    _ Cap. 6. 8.
-
-    _ CAP. 9. 1
-
-    _ CAP. 13. 11.
-
-    _ CAP. 17. 3.
-
-1. Section 13.
-Mat. 13 AT Nazeret he tooke his textin Eſai's prophecie:Luk. 4. Whence hardly ſcaping, he did next,t
-    _ Chriſts Parables.
-By o Light and p Leuen, q Feaſts & r Friendsby ſ Rich men, t Trees, and u Treaſure.By x Children, y 
-    _ Cap. 6. 8.
-
-    _ CAP. 9. 1
-
-    _ CAP. 13. 11.
-
-    _ CAP. 17. 3.
-
-1. Section 14.
-Mat. 13 AT Nazeret he tooke his textin Eſai's prophecie:Luk. 4. Whence hardly ſcaping, he did next,t
-    _ Chriſts Parables.
-By o Light and p Leuen, q Feaſts & r Friendsby ſ Rich men, t Trees, and u Treaſure.By x Children, y 
-    _ Cap. 6. 8.
-
-    _ CAP. 9. 1
-
-    _ CAP. 13. 11.
-
-    _ CAP. 17. 3.
-
-1. Section 15.
-Mat. 13 AT Nazeret he tooke his textin Eſai's prophecie:Luk. 4. Whence hardly ſcaping, he did next,t
-    _ Chriſts Parables.
-By o Light and p Leuen, q Feaſts & r Friendsby ſ Rich men, t Trees, and u Treaſure.By x Children, y 
-    _ Cap. 6. 8.
-
-    _ CAP. 9. 1
-
-    _ CAP. 13. 11.
-
-    _ CAP. 17. 3.
-
-1. Section 16.
-Mat. 13 AT Nazeret he tooke his textin Eſai's prophecie:Luk. 4. Whence hardly ſcaping, he did next,t
-    _ Chriſts Parables.
-By o Light and p Leuen, q Feaſts & r Friendsby ſ Rich men, t Trees, and u Treaſure.By x Children, y 
-    _ Cap. 6. 8.
-
-    _ CAP. 9. 1
-
-    _ CAP. 13. 11.
-
-    _ CAP. 17. 3.
-
-1. Section 17.
-Mat. 13 AT Nazeret he tooke his textin Eſai's prophecie:Luk. 4. Whence hardly ſcaping, he did next,t
-    _ Chriſts Parables.
-By o Light and p Leuen, q Feaſts & r Friendsby ſ Rich men, t Trees, and u Treaſure.By x Children, y 
-    _ Cap. 6. 8.
-
-    _ CAP. 9. 1
-
-    _ CAP. 13. 11.
-
-    _ CAP. 17. 3.
-
-1. Section 18.
-Mat. 13 AT Nazeret he tooke his textin Eſai's prophecie:Luk. 4. Whence hardly ſcaping, he did next,t
-    _ Chriſts Parables.
-By o Light and p Leuen, q Feaſts & r Friendsby ſ Rich men, t Trees, and u Treaſure.By x Children, y 
-    _ Cap. 6. 8.
-
-    _ CAP. 9. 1
-
-    _ CAP. 13. 11.
-
-    _ CAP. 17. 3.
-
-1. Section 19.
-Mat. 13 AT Nazeret he tooke his textin Eſai's prophecie:Luk. 4. Whence hardly ſcaping, he did next,t
-    _ Chriſts Parables.
-By o Light and p Leuen, q Feaſts & r Friendsby ſ Rich men, t Trees, and u Treaſure.By x Children, y 
-    _ Cap. 6. 8.
-
-    _ CAP. 9. 1
-
-    _ CAP. 13. 11.
-
-    _ CAP. 17. 3.
-
-1. Section 20.
-Mat. 13 AT Nazeret he tooke his textin Eſai's prophecie:Luk. 4. Whence hardly ſcaping, he did next,t
-    _ Chriſts Parables.
-By o Light and p Leuen, q Feaſts & r Friendsby ſ Rich men, t Trees, and u Treaſure.By x Children, y 
-    _ Cap. 6. 8.
-
-    _ CAP. 9. 1
-
-    _ CAP. 13. 11.
-
-    _ CAP. 17. 3.
-
-1. The Dukes of Dauids ſtocke, after the returne out of Captiuity.
-Mat. 13 AT Nazeret he tooke his textin Eſai's prophecie:Luk. 4. Whence hardly ſcaping, he did next,t
-    _ Chriſts Parables.
-By o Light and p Leuen, q Feaſts & r Friendsby ſ Rich men, t Trees, and u Treaſure.By x Children, y 
-    _ Cap. 6. 8.
-
-    _ CAP. 9. 1
-
-    _ CAP. 13. 11.
-
-    _ CAP. 17. 3.
-
-1. The Princes and Kings of the Family of the Maccabees.
-Mat. 13 AT Nazeret he tooke his textin Eſai's prophecie:Luk. 4. Whence hardly ſcaping, he did next,t
-    _ Chriſts Parables.
-By o Light and p Leuen, q Feaſts & r Friendsby ſ Rich men, t Trees, and u Treaſure.By x Children, y 
-    _ Cap. 6. 8.
-
-    _ CAP. 9. 1
-
-    _ CAP. 13. 11.
-
-    _ CAP. 17. 3.
-
-1. The poſterity of Herod.
-Mat. 13 AT Nazeret he tooke his textin Eſai's prophecie:Luk. 4. Whence hardly ſcaping, he did next,t
-    _ Chriſts Parables.
-By o Light and p Leuen, q Feaſts & r Friendsby ſ Rich men, t Trees, and u Treaſure.By x Children, y 
-    _ Cap. 6. 8.
-
-    _ CAP. 9. 1
-
-    _ CAP. 13. 11.
-
-    _ CAP. 17. 3.
-
-1. A briefe ſupputation of the yeres and times, from the Creation of the World, vnto the birth of Chriſt: collected out of Iunius, according to the Scriptures.The age of the World.
-Mat. 13 AT Nazeret he tooke his textin Eſai's prophecie:Luk. 4. Whence hardly ſcaping, he did next,t
-    _ Chriſts Parables.
-By o Light and p Leuen, q Feaſts & r Friendsby ſ Rich men, t Trees, and u Treaſure.By x Children, y 
-    _ Cap. 6. 8.
-
-    _ CAP. 9. 1
-
-    _ CAP. 13. 11.
-
-    _ CAP. 17. 3.
-
-1. The firſt Section.
-Mat. 13 AT Nazeret he tooke his textin Eſai's prophecie:Luk. 4. Whence hardly ſcaping, he did next,t
-    _ Chriſts Parables.
-By o Light and p Leuen, q Feaſts & r Friendsby ſ Rich men, t Trees, and u Treaſure.By x Children, y 
-    _ Cap. 6. 8.
-
-    _ CAP. 9. 1
-
-    _ CAP. 13. 11.
-
-    _ CAP. 17. 3.
-
-1. Section 2.
-Mat. 13 AT Nazeret he tooke his textin Eſai's prophecie:Luk. 4. Whence hardly ſcaping, he did next,t
-    _ Chriſts Parables.
-By o Light and p Leuen, q Feaſts & r Friendsby ſ Rich men, t Trees, and u Treaſure.By x Children, y 
-    _ Cap. 6. 8.
-
-    _ CAP. 9. 1
-
-    _ CAP. 13. 11.
-
-    _ CAP. 17. 3.
-
-1. Section 3.
-Mat. 13 AT Nazeret he tooke his textin Eſai's prophecie:Luk. 4. Whence hardly ſcaping, he did next,t
-    _ Chriſts Parables.
-By o Light and p Leuen, q Feaſts & r Friendsby ſ Rich men, t Trees, and u Treaſure.By x Children, y 
-    _ Cap. 6. 8.
-
-    _ CAP. 9. 1
-
-    _ CAP. 13. 11.
-
-    _ CAP. 17. 3.
-
-1. Section 4.
-Mat. 13 AT Nazeret he tooke his textin Eſai's prophecie:Luk. 4. Whence hardly ſcaping, he did next,t
-    _ Chriſts Parables.
-By o Light and p Leuen, q Feaſts & r Friendsby ſ Rich men, t Trees, and u Treaſure.By x Children, y 
-    _ Cap. 6. 8.
-
-    _ CAP. 9. 1
-
-    _ CAP. 13. 11.
-
-    _ CAP. 17. 3.
-
-1. Section. 5.
-Mat. 13 AT Nazeret he tooke his textin Eſai's prophecie:Luk. 4. Whence hardly ſcaping, he did next,t
-    _ Chriſts Parables.
-By o Light and p Leuen, q Feaſts & r Friendsby ſ Rich men, t Trees, and u Treaſure.By x Children, y 
-    _ Cap. 6. 8.
-
-    _ CAP. 9. 1
-
-    _ CAP. 13. 11.
-
-    _ CAP. 17. 3.
-
-1. Section 6.
-Mat. 13 AT Nazeret he tooke his textin Eſai's prophecie:Luk. 4. Whence hardly ſcaping, he did next,t
-    _ Chriſts Parables.
-By o Light and p Leuen, q Feaſts & r Friendsby ſ Rich men, t Trees, and u Treaſure.By x Children, y 
-    _ Cap. 6. 8.
-
-    _ CAP. 9. 1
-
-    _ CAP. 13. 11.
-
-    _ CAP. 17. 3.
-
-1. Section 7.
-Mat. 13 AT Nazeret he tooke his textin Eſai's prophecie:Luk. 4. Whence hardly ſcaping, he did next,t
-    _ Chriſts Parables.
-By o Light and p Leuen, q Feaſts & r Friendsby ſ Rich men, t Trees, and u Treaſure.By x Children, y 
-    _ Cap. 6. 8.
-
-    _ CAP. 9. 1
-
-    _ CAP. 13. 11.
-
-    _ CAP. 17. 3.
-
-1. Section 8.
-Mat. 13 AT Nazeret he tooke his textin Eſai's prophecie:Luk. 4. Whence hardly ſcaping, he did next,t
-    _ Chriſts Parables.
-By o Light and p Leuen, q Feaſts & r Friendsby ſ Rich men, t Trees, and u Treaſure.By x Children, y 
-    _ Cap. 6. 8.
-
-    _ CAP. 9. 1
-
-    _ CAP. 13. 11.
-
-    _ CAP. 17. 3.
-
-1. Section. 9.
-Mat. 13 AT Nazeret he tooke his textin Eſai's prophecie:Luk. 4. Whence hardly ſcaping, he did next,t
-    _ Chriſts Parables.
-By o Light and p Leuen, q Feaſts & r Friendsby ſ Rich men, t Trees, and u Treaſure.By x Children, y 
-    _ Cap. 6. 8.
-
-    _ CAP. 9. 1
-
-    _ CAP. 13. 11.
-
-    _ CAP. 17. 3.
-
-1. Section 10.
-Mat. 13 AT Nazeret he tooke his textin Eſai's prophecie:Luk. 4. Whence hardly ſcaping, he did next,t
-    _ Chriſts Parables.
-By o Light and p Leuen, q Feaſts & r Friendsby ſ Rich men, t Trees, and u Treaſure.By x Children, y 
-    _ Cap. 6. 8.
-
-    _ CAP. 9. 1
-
-    _ CAP. 13. 11.
-
-    _ CAP. 17. 3.
-
-1. ReuelationSection 11.
-Mat. 13 AT Nazeret he tooke his textin Eſai's prophecie:Luk. 4. Whence hardly ſcaping, he did next,t
-    _ Chriſts Parables.
-By o Light and p Leuen, q Feaſts & r Friendsby ſ Rich men, t Trees, and u Treaſure.By x Children, y 
-    _ Cap. 6. 8.
-
-    _ CAP. 9. 1
-
-    _ CAP. 13. 11.
-
-    _ CAP. 17. 3.
-
-1. Section 12.
-Mat. 13 AT Nazeret he tooke his textin Eſai's prophecie:Luk. 4. Whence hardly ſcaping, he did next,t
-    _ Chriſts Parables.
-By o Light and p Leuen, q Feaſts & r Friendsby ſ Rich men, t Trees, and u Treaſure.By x Children, y 
-    _ Cap. 6. 8.
-
-    _ CAP. 9. 1
-
-    _ CAP. 13. 11.
-
-    _ CAP. 17. 3.
-
-1. Section 13.
-Mat. 13 AT Nazeret he tooke his textin Eſai's prophecie:Luk. 4. Whence hardly ſcaping, he did next,t
-    _ Chriſts Parables.
-By o Light and p Leuen, q Feaſts & r Friendsby ſ Rich men, t Trees, and u Treaſure.By x Children, y 
-    _ Cap. 6. 8.
-
-    _ CAP. 9. 1
-
-    _ CAP. 13. 11.
-
-    _ CAP. 17. 3.
-
-1. Section 14.
-Mat. 13 AT Nazeret he tooke his textin Eſai's prophecie:Luk. 4. Whence hardly ſcaping, he did next,t
-    _ Chriſts Parables.
-By o Light and p Leuen, q Feaſts & r Friendsby ſ Rich men, t Trees, and u Treaſure.By x Children, y 
-    _ Cap. 6. 8.
-
-    _ CAP. 9. 1
-
-    _ CAP. 13. 11.
-
-    _ CAP. 17. 3.
-
-1. The ſeuen Seales.
-Mat. 13 AT Nazeret he tooke his textin Eſai's prophecie:Luk. 4. Whence hardly ſcaping, he did next,t
-    _ Chriſts Parables.
-By o Light and p Leuen, q Feaſts & r Friendsby ſ Rich men, t Trees, and u Treaſure.By x Children, y 
-    _ Cap. 6. 8.
-
-    _ CAP. 9. 1
-
-    _ CAP. 13. 11.
-
-    _ CAP. 17. 3.
-
-1. The 7. Trumpets.
-Mat. 13 AT Nazeret he tooke his textin Eſai's prophecie:Luk. 4. Whence hardly ſcaping, he did next,t
-    _ Chriſts Parables.
-By o Light and p Leuen, q Feaſts & r Friendsby ſ Rich men, t Trees, and u Treaſure.By x Children, y 
-    _ Cap. 6. 8.
-
-    _ CAP. 9. 1
-
-    _ CAP. 13. 11.
-
-    _ CAP. 17. 3.
-
-1. A Deſcription of the Church.
-Mat. 13 AT Nazeret he tooke his textin Eſai's prophecie:Luk. 4. Whence hardly ſcaping, he did next,t
-    _ Chriſts Parables.
-By o Light and p Leuen, q Feaſts & r Friendsby ſ Rich men, t Trees, and u Treaſure.By x Children, y 
-    _ Cap. 6. 8.
-
-    _ CAP. 9. 1
-
-    _ CAP. 13. 11.
-
-    _ CAP. 17. 3.
-
-1. A Deſcription of the Diuell.
-Mat. 13 AT Nazeret he tooke his textin Eſai's prophecie:Luk. 4. Whence hardly ſcaping, he did next,t
-    _ Chriſts Parables.
-By o Light and p Leuen, q Feaſts & r Friendsby ſ Rich men, t Trees, and u Treaſure.By x Children, y 
-    _ Cap. 6. 8.
-
-    _ CAP. 9. 1
-
-    _ CAP. 13. 11.
-
-    _ CAP. 17. 3.
-
-1. A deſcription of the firſt Beaſt.
-Mat. 13 AT Nazeret he tooke his textin Eſai's prophecie:Luk. 4. Whence hardly ſcaping, he did next,t
-    _ Chriſts Parables.
-By o Light and p Leuen, q Feaſts & r Friendsby ſ Rich men, t Trees, and u Treaſure.By x Children, y 
-    _ Cap. 6. 8.
-
-    _ CAP. 9. 1
-
-    _ CAP. 13. 11.
-
-    _ CAP. 17. 3.
-
-1. The Deſcription of Antichriſt, obſerued by the learned to be foure times fully and definitelie ſet downe in this Booke.
-Mat. 13 AT Nazeret he tooke his textin Eſai's prophecie:Luk. 4. Whence hardly ſcaping, he did next,t
-    _ Chriſts Parables.
-By o Light and p Leuen, q Feaſts & r Friendsby ſ Rich men, t Trees, and u Treaſure.By x Children, y 
-    _ Cap. 6. 8.
-
-    _ CAP. 9. 1
-
-    _ CAP. 13. 11.
-
-    _ CAP. 17. 3.
-
-1. The meanes by which Antichriſt ſhall be confounded.
-Mat. 13 AT Nazeret he tooke his textin Eſai's prophecie:Luk. 4. Whence hardly ſcaping, he did next,t
-    _ Chriſts Parables.
-By o Light and p Leuen, q Feaſts & r Friendsby ſ Rich men, t Trees, and u Treaſure.By x Children, y 
-    _ Cap. 6. 8.
-
-    _ CAP. 9. 1
-
-    _ CAP. 13. 11.
-
-    _ CAP. 17. 3.
-
-1. The ſeuen last plagues, and vials of Gods wrath.
-Mat. 13 AT Nazeret he tooke his textin Eſai's prophecie:Luk. 4. Whence hardly ſcaping, he did next,t
-    _ Chriſts Parables.
-By o Light and p Leuen, q Feaſts & r Friendsby ſ Rich men, t Trees, and u Treaſure.By x Children, y 
-    _ Cap. 6. 8.
-
-    _ CAP. 9. 1
-
-    _ CAP. 13. 11.
-
-    _ CAP. 17. 3.
+    _ The ſeuen last plagues, and vials of Gods wrath.
 
 **Types of content**
 
